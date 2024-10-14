@@ -1,2 +1,0 @@
-# aristidesflix
-gfiug yvgvisy gxfc
